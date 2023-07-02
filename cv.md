@@ -1,3 +1,4 @@
+![image-alt](https://github.com/KoriKari/rsschool-cv/blob/gh-pages/Ava%20White.png)
 # Karina Mukeyeva
 ## My contact info:
 * **Phone number**: +77073577497
