@@ -1,1 +1,1 @@
-# rsschool-cv
+https://KoriKari.github.io/rsschool-cv/
